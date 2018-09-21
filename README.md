@@ -1,2 +1,2 @@
 # newscat
-Tuyul Coin News Cat
+Gunaka Dengan Bijak
